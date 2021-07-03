@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MagdaBlizzard. I'm from Mexico, I'm 19 years old. I study a bachelor's degree in Tourism
+- 👀 I’m interested in drawing, listening to music, and topics related to tourism.
+- 🌱 I’m currently learning french, and a few things outside my bachelor's degree
